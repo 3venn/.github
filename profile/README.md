@@ -4,4 +4,5 @@
 2) The wrongest of all wrong answers will recieve bonus* points**
 
 * Bonus points are worth 10X more than regular points
-** Nobody is actually keeping score of any kind of points
+
+** Nobody is actually keeping score when it comes any kind of points
