@@ -1,6 +1,6 @@
 ## Explain the connection between three groups
 
-1) The three groups are not usually grouped together, so good answers must involve original thinking.
+1) The three groups are not usually grouped together, so good answers must involve original thinking. Or not.
 2) The wrongest of all wrong answers will recieve bonus* points**
 
 
