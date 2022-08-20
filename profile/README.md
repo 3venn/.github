@@ -7,4 +7,4 @@
 ------
 *Bonus points are worth 10X more than regular points
 
-**Nobody is actually keeping score when it comes any kind of points
+**Nobody is actually keeping score when it comes any kind of points. You are free to keep score, thus this game is much like your reputation, ie except for you, nobody else cares.
