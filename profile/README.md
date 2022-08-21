@@ -1,4 +1,4 @@
-## Explain the intersection between three groups
+## Explain the intersection or morphism between three groups
 
 1) The three groups are not usually grouped together, so good answers must involve original thinking. Or not, ie you are free to play the game wrong.
 
