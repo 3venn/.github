@@ -1,6 +1,6 @@
 ## Explain the intersection or morphism between three groups
 
-1) The three groups are not usually grouped together, so good answers must involve original thinking. Or not, ie you are free to play the game wrong.
+1) The three groups are not usually grouped together, so good answers must involve original, non-binary thinking. Or maybe not, ie you are free to play the game wrong or right or however you want to play it.
 
 2) The wrongest of all wrong answers will recieve bonus* points**.
 
