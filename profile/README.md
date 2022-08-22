@@ -1,8 +1,12 @@
 ## Explain the intersection or morphism between three groups
 
-1) The three groups are not usually grouped together, so good answers must involve original, non-binary thinking. Or maybe not, ie you are free to play the game wrong or right or however you want to play it.
+0) It's like solitaire; you can play the game alone ... or you can make it social and ask others to play.
 
-2) The wrongest of all wrong answers will recieve bonus* points**.
+1) Quasi-randomly select three groups to start. The three groups should not typically be grouped together but you can decide how random your selection actually is, so maybe your groups will be typically somewhat grouped together.
+
+2) Good answers about the intersection or morphism must involve original, non-binary thinking. Or maybe not, ie you are certainly free to play the game wrong or right or however you want to play it.
+
+3) The wrongest of all wrong answers will recieve bonus* points**.
 
 
 ------
