@@ -10,6 +10,6 @@
 
 
 ------
-*Bonus points are worth 10X more than regular points; they are like style points except more meaningful.
+*Bonus points are worth 10X more than regular points; they are like style points except more meaningful ... because bonus points are totally make-believe points, so you can run up your own score.
 
 **Nobody is actually keeping score when it comes any kind of points. You are free to keep score, thus this game is much like your reputation or the way which you choose to categorize yourself, ie except for you, ***nobody else really cares*** about that stuff; relax, you've won -- the score doesn't matter.
